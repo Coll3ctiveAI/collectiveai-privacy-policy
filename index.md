@@ -51,7 +51,7 @@ We do **not** sell or share your data with third parties for advertising or mark
 You may:
 
 - Request deletion of any personal data you’ve submitted (if applicable)
-- Contact us at **[your@email.com]** with any privacy questions
+- Contact us at **collectiveai@gmail.com** with any privacy questions
 
 ---
 
